@@ -13,3 +13,5 @@
    
 8. контакты
    
+   тел.+79137082056
+   email: netologykm@mail.ru
